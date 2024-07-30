@@ -6,7 +6,7 @@ Meu nome é Giovanna de Sena
 
 -Estou aprendendo coisas novas
 
--Irei utilizar este espaço para me organizar melhor
+-Pretendo utilizar este espaço para me organizar melhor
 
 ![_](https://media.tenor.com/nBQQ6XM5BhIAAAAi/cute.gif)
 
