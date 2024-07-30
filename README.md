@@ -2,7 +2,7 @@
 
 Meu nome é Giovanna de Sena
 
--Estou estudando pela [Alura](https://www.alura.com.br)
+-Estou estudando pela Alura
 
 -Estou aprendendo coisas novas
 
